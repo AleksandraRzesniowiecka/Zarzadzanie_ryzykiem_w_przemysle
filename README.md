@@ -1,0 +1,1 @@
+# Zarzadzanie_ryzykiem_w_przemysle
